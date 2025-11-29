@@ -22,3 +22,5 @@ This modification will make the Radiomaster MT12 remote control more suitable fo
 ![10](https://github.com/user-attachments/assets/0b88428c-bb65-4dd4-92bb-966fa2fe4736)
 
 ![11](https://github.com/user-attachments/assets/7ca8d730-3dfc-4e5e-8a12-3612ee39d181)
+
+For more interesting content, please visit my [Facebook](https://www.facebook.com/rcchaorenwei)
